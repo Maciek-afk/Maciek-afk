@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Maciek-afk // legally Maciej Lendzion
+- 👀 I’m interested in numerous activities, but if I had to choose 3 favorite those would be basketball, automotive indsutry, and coding
+- 🌱 I’m currently learning Applied Computer Science (ISTAN) on WUST (Wrocław University of Science and Technology)
+- 💞️ I’m open for any collaboration propositions 
+- 📫 How to reach me : 
+      - by e-mail    : maciejlendzion@o2.pl
+      - by Instagram : @m_lendzion
